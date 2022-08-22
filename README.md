@@ -1,8 +1,10 @@
-- ◈ Hi, I’m an idiot
-- 🔘 I’m interested in being interested in being interested in being interested in being interested in being intere-
+- ✨ Hi, I’m an idiot
+- 🌍 I’m interested in being interested in being interested in being interested in being interested in being intere-
 - 🌳🔫 I’m currently learning how to cause deforstation
 - 💔 I’m looking to collaborate on being just a sinlgle person
 - 📫 How to YEEET me ...
+- 🥚 e  g  g
+
 
 <!---
 uwu is a ✨ sussy ✨ repository because its `ME` (dis file) appears on your GitHub profile.
