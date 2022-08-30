@@ -10,9 +10,4 @@
 uwu is a ✨ sussy ✨ repository because its `ME` (dis file) appears on your GitHub profile.
 You can click the Wawa link to take a yeet at your changes.
 ---> ....
-am wawa cat
-
-oh! i also found a deepfried mindustry landing sound file in the cache folder so here it is in a zip (mp3 = original file, ogg = converted for mod usage) :
-[later]
-
-
+am dead
