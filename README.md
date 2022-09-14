@@ -4,7 +4,7 @@
 - 💔 I’m looking to collaborate on being just a sinlgle person
 - 📫 How to YEEET me ...
 - 🥚 e  g  g
-- 🧊 Did you know that you can put food in an ice cube tray to make the food the shape of the ice cube tray ok cool but, Did you know that you can put foo-
+- 🧊 Did you know that you can put food in an ice cube tray to make the food the shape of the ice cube tray!
 - ⬛ Router
 
 
